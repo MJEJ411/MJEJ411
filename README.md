@@ -14,3 +14,4 @@
 ## Hi there 👋
 # Hi there 👋
 
+![KakaoTalk_20230411_192018012](https://github.com/MJEJ411/MJEJ411/assets/136538675/e34fdb4c-cbf9-4418-93ad-604bd14284bb)
